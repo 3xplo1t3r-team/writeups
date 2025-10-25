@@ -1,1 +1,1 @@
-Collection of write-ups by team TOP - The Ordinary Player
+Just a collection of write-ups
